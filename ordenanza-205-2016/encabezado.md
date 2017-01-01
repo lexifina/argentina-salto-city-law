@@ -1,0 +1,9 @@
+Ordenanza Nº205/2016
+Ordenanza Nº 205/2016
+Salto, 28/12/2016
+ORDENANZA
+ORDENANZA FISCAL PARA EL PARTIDO DE SALTO
+PARTE GENERAL
+TITULO PRIMERO
+Capitulo I
+De las obligaciones fiscales

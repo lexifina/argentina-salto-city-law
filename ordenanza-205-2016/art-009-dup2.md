@@ -1,0 +1,4 @@
+ARTICULO 9º.BIS Están asimismo obligados al pago en cumplimiento de la deuda tributaria de los Contribuyentes en la forma que rija para éstos o que expresamente se establezca, las personas que administren o dispongan de los bienes de los Contribuyentes, las que participan por sus funciones públicas o por su profesión en la formalización de actos u operaciones sobre bienes o actividades que constituyan el objeto de servicios retribuibles o beneficios por obras que originen contribuciones y a aquellos a quienes esta Ordenanza, la Ordenanza Impositiva Anual y las Ordenanzas Fiscales Especiales designen como agentes de retención.
+Corresponde actuar como agente de retención a las empresas -incluidas las unipersonales- radicadas en el Partido, que contraten
+los servicios determinados en el anteúltimo párrafo del Artículo 96º de la presente Ordenanza.
+Solidaridad de terceros.
