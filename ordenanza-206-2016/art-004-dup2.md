@@ -1,0 +1,4 @@
+Artículo 4º por Mayoría del Honorable Cuerpo por DOCE (12) votos por la afirmativa (Sres. Concejales Daniel Arimay, Santiago Esperanza, Silvia Costantini, Hugo Malandra, Alberto Perez, Paola Nuñez, Alicia Pinela, Jorge Pérez,Pablo Russo, Alejandro Santana, Mariano Bracho y Mariam Caporossi) y TRES (3) votos por la negativa (Sres. Concejales Edgardo Burgos, Vanesa Spadone y Amilcar Mirkouski).-
+Artículos 5º y 6º por unanimidad del Honorable Cuerpo.-
+Artículos 7º, 8º, y 9º por Mayoría del Honorable Cuerpo por DOCE (12) votos por la afirmativa (Sres. Concejales Daniel Arimay, Santiago Esperanza, Silvia Costantini, Hugo Malandra, Alberto Perez, Paola Nuñez, Alicia Pinela, Jorge Pérez, Pablo Russo, Alejandro Santana, Mariano Bracho y Mariam Caporossi) y TRES (3) votos por la negativa (Sres. Concejales Edgardo Burgos, Vanesa Spadone y Amilcar Mirkouski).-
+Artículos 10º al 35º por unanimidad del Honorable Cuerpo.-
