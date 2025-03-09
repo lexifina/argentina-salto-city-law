@@ -1,0 +1,2 @@
+ARTICULO 36º. BIS: Sin perjuicio de los premios por cumplimiento tributario que instituyan normas especiales, el Departamento Ejecutivo queda autorizado a establecer mecanismos de beneficios que premien y alienten el buen cumplimiento de las obligaciones tributarias de los contribuyentes o responsables, los que deberán instituirse con carácter general y siempre que razones de oportunidad y conveniencia así lo justifiquen, respetando u observando las normas y principios establecidos en esta Ordenanza.
+Formas y lugares de pago.

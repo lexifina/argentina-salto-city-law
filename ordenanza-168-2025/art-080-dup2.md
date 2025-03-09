@@ -1,0 +1,3 @@
+ARTICULO 80º. BIS. Son contribuyentes y responsables de esta tasa, según corresponda, los denominados GENERADORES DE RESIDUOS DOMICILIAROS, LOS GRANDES GENERADORES INDUSTRIALES Y/O COMERCIALES y los GENERADORES ESPECIALES (ordenanza 63/2.021) y/o las empresas de transportes que los depositen en la planta de tratamiento de Residuos Municipal.
+Facultase al poder ejecutivo a crear un Registro de Generadores Domiciliarios, Especiales y de Grandes Generadores Comerciales e industriales, para facilitar la liquidación y percepción de la tasa, como así también, estatuir las normas reglamentarias que correspondan para optimizar la Gestión y tratamiento de los Residuos Sólidos Urbanos.
+Forma de Pago.

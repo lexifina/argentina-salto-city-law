@@ -1,0 +1,9 @@
+Ordenanza Nº168/2024
+Ordenanza Nº 168/2024
+Salto, 30/12/2024
+ORDENANZA
+ORDENANZA FISCAL
+PARTE GENERAL
+TITULO PRIMERO
+Capitulo I
+De las obligaciones fiscales

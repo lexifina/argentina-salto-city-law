@@ -1,0 +1,3 @@
+ARTICULO 34º BIS: La falta de pago de seis (6) cuotas, en la Tasa por Inspección de Seguridad e Higiene y/o derechos que gravan la actividad comercial, como así también la falta de pago de tres (3) cuotas de planes de pago oportunamente concedidos, facultará (previa intimación más notificación fehaciente por el área que corresponda, y acorde al articulo 26) al Departamento Ejecutivo a proceder a la clausura del local por el término de tres (3) días, la cual tendrá carácter sancionatorio objetivo (falta de pago), no siendo revocable por la sola presentación del deudor a regularizar su deuda.
+TITULO OCTAVO
+Del pago
