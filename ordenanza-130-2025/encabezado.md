@@ -1,0 +1,11 @@
+Ordenanza Nº130/2024
+Ordenanza Nº 130/2024
+Salto, 23/10/2024
+. . .VISTO
+El Expediente Nº 156-E-2024 iniciado por Mensaje Nº 124/24 del Departamento Ejecutivo; y
+. . .CONSIDERANDO
+QUE por el mismo solicita prórroga para la presentación del Presupuesto correspondiente al Ejercicio del año 2025;
+QUE tal solicitud se ampara en el Artículo 36º de la Ley Orgánica de las Municipalidades, teniendo el Cuerpo Deliberativo la potestad de otorgar la misma;
+. . .POR ELLO
+El Honorable Concejo Deliberante de Salto, en uso de las atribuciones que le son propias sanciona la siguiente:
+ORDENANZA
