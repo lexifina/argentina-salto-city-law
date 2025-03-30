@@ -1,0 +1,29 @@
+ARTÍCULO 6º: e)
+“GAHAN:
+Alumbrado Público
+MES
+AÑO
+ZONA 1
+ZONA 2
+T. SOCIAL ZONA 1
+T. SOCIAL ZONA 2
+AGOSTO
+2024
+$ 5,218.56
+$ 2,615.04
+$ 2,538.00
+$ 1,268.88
+OCTUBRE
+2024
+$ 6,958.08
+$ 3,486.72
+$ 3,384.00
+$ 1,691.84
+DICIEMBRE
+2024
+$ 7,653.89
+$ 3,835.39
+$ 3,722.40
+$ 1,861.02
+Para el caso de corresponder tarifa social de alumbrado público, se aplicará a aquellos beneficiarios de Tarifa Social registrados al 31/12/2023.
+Los montos establecidos a partir de agosto de 2024 para la Tasa de Alumbrado Público, no se aplicarán en forma retroactiva a períodos previos al de 08/2024”.
