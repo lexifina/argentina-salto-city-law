@@ -1,0 +1,16 @@
+Ordenanza Nº156/25
+Ordenanza Nº 156/25
+Salto, 14/11/2025
+...VISTO
+El reingreso del Expediente N° 259-E-2023 iniciado por Mensaje Nº 150/25 del Departamento Ejecutivo; y
+...CONSIDERANDO
+QUE mediante Ordenanza N° 007/2024 se autorizó a la Sra. Marisa Curkovic al uso del espacio público destinado al estacionamiento de vehículos para emergencias y para personas con discapacidad en calle Arenales entre Belgrano y Piedras de esta ciudad;
+QUE a fs. 25 la peticionante solicita, por un lado, modificar el estacionamiento otorgado y demarcarlo sobre la acera de Arenales mano izquierda correspondiente a su domicilio y, por otro lado, se realice una rampa de discapacidad sobre la misma acera. Acompaña documentación inherente al trámite;
+QUE a fs. 30 la Dirección de Tránsito y Control Urbano toma vista de lo solicitado y considera oportuno modificar el Artículo 9° de la Ordenanza N° 137/2012 de modo tal que autorice el estacionamiento en dicha arteria sobre ambos manos ya que favorecería la circulación y acceso a los comercios de la zona maximizando los espacios de estacionamiento disponibles. Cumplido, se estaría en condiciones de conceder el espacio solicitado por la requirente frente a su vivienda. Asimismo, respecto de la rampa de acceso debería darse curso a lo solicitado dado que posee dictamen favorable de la Dirección de Planeamiento;
+QUE la Secretaría de Infraestructura, Vivienda y Servicios Públicos toma visto de lo solicitado y acompaña memoria descriptiva y plano de obra a realizar para la construcción de rampa de acceso;
+QUE a través de la Ordenanza N° 113/2025 se modificó el Artículo 9° de la Ordenanza General de Tránsito N° 137/2012 autorizando el estacionamiento de automotores sobre ambas manos en la arteria Arenales desde Alsina hasta Buenos Aires;
+QUE a fs. 44 la Dirección de Tránsito y Control Urbano en atención a lo solicitado, a las actuaciones llevadas a cabo y considerando sin objeción alguna procede a realizar inspección del espacio reservado por discapacidad, el que considera viable en arteria Arenales entre Piedras y Belgrano sentido Sur- Norte cordón Oeste;
+QUE a fs. 50 la Dirección de Asuntos Legales resalta primeramente que, respecto de la autorización de uso del espacio público para la construcción de rampa de acceso en la arteria solicitada, se encuentra tramitando de manera paralela en el Expediente N° 4099-39118/23 ALC. I, habiendo dictaminado el servicio jurídico lo requerido. Asimismo, en lo que respecta a la modificación del estacionamiento reservado por discapacidad sobre la acera correspondiente a su domicilio, estima que correspondería modificar la Ordenanza General de Tránsito N° 137/2012 inciso 59° del Artículo 11 BIS agregando el sentido Sur-Norte cordón Oeste, es decir, lado izquierdo de calle Arenales. Por otro lado, la Dirección de Tránsito y Control Urbano deberá demarcar y colocar la señalética correspondiente a dicho estacionamiento reservado y anular la otra demarcación sobre calle Arenales (lado derecho). En este sentido, estima que se encontrarían reunidas las condiciones para elevar las presentes actuaciones al H.C.D;
+...POR ELLO:
+El Honorable Concejo Deliberante de Salto, en uso de las atribuciones que le son propias, sanciona la siguiente:
+ORDENANZA
