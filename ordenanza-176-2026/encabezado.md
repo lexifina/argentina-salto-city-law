@@ -1,0 +1,10 @@
+Ordenanza Nº176/25
+Ordenanza Nº 176/25
+Salto, 02/01/2026
+ORDENANZA
+ORDENANZA FISCAL 2026
+PARA EL PARTIDO DE SALTO
+PARTE GENERAL
+TITULO PRIMERO
+Capitulo I
+De las obligaciones fiscales

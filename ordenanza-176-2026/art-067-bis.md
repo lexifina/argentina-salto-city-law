@@ -1,0 +1,2 @@
+ARTICULO 67º BIS. El Departamento Ejecutivo podrá compensar de oficio, total o parcialmente, las sumas a percibir por los proveedores del Municipio con los saldos adeudados por éstos en concepto de gravámenes de cualquier naturaleza. Además, podrá retener total o parcialmente, y tomar a cuenta, el importe que deba abonar a proveedores que no registren la habilitación correspondiente en situación regular al momento del pago hasta que el proveedor regularice su situación.
+Términos días hábiles.

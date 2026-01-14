@@ -1,0 +1,1 @@
+ARTICULO 230º BIS.- El padrón inicial, es el enviado por el Superior Gobierno de la Provincia de Buenos Aires y los cambios que se produzcan a partir del mismo, serán concordantes con los movimientos dominiales que informe el Registro Nacional de la Propiedad Automotor y Créditos Prendarios.-
