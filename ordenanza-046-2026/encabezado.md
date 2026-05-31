@@ -1,0 +1,13 @@
+Ordenanza Nº046/26
+Ordenanza Nº 046/26
+Salto, 22/04/2026
+. . .VISTO
+El Expediente Nº 049-E-2026 iniciado por Mensaje Nº 025/26 del Departamento Ejecutivo; y
+. . .CONSIDERANDO
+QUE por el mismo se solicita la convalidación de los Decretos N° 0712/26; N° 0747/26; N° 0748/26; N° 0759/26; N° 0760/26; N° 0783/26; N° 0785/26; N° 0798/26; N° 0797/26; N° 0799/26; N° 0879/26; N° 0878/26; N° 0895/26; N° 0896/26; N° 0897/26; N° 0898/26; N° 0900/26; N° 0923/26; N° 0924/26; N° 0922/26; N° 0935/26; N° 0945/26; N° 0946/26; N° 0947/26; N° 0948/26; N° 0963/26 y N° 0964/26 librados por el Departamento Ejecutivo Ad-Referéndum del H.C.D.;
+QUE se autorizó el cierre del tránsito vehicular con motivo de realizar festejos familiares, festejos de carnaval en el Parque Tobin, mudanza en calle Buenos Aires entre Avellaneda y Viamonte, caminata a favor de la lucha contra el cáncer infantil calles Av. Domingo de Paola y Antonio Rebagliatti desde el Parque Tobin hasta la Costanera Norte, presentaciones de camperas de egresados de alumnos de la Escuela de Educación Primaria N° 6, festejos por el último primer día de clases de alumnos del último año de la Escuela de Educación Secundaria N° 3 calle Uruguay entre Tristán Lobos y Pasaje Pergamino, utilización del espacio público del Parque de La Diagonal de lunes a viernes del corriente año a efectos de realizar clases de educación física por parte de la Escuela de Educación Primaria N° 29, utilización del espacio público de la Plaza San Martín por parte del Centro de Formación Profesional N° 401 a los fines de socializar y divulgar la oferta académica de la Institución, utilización del espacio público de la Plaza de los Bomberos por parte de la Escuela de Educación Primaria N° 27 a efectos de realizar presentación de buzos de egresados, festejo de local comercial “La Santa” en calle Bolivar entre Buenos Aires y San Pablo e inauguración de local comercial en calle Doroteo Gómez entre Belgrano y Piedras;
+QUE resulta potestad de este Cuerpo expedirse sobre la convalidación o rechazo de dichos actos administrativos;
+. . .POR ELLO
+El Honorable Concejo Deliberante de Salto, en uso de las atribuciones que le son propias sanciona la siguiente:
+ORDENANZA
+ORDENANZA
