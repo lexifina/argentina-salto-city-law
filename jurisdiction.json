@@ -5,7 +5,7 @@
   "level": "municipality",
   "parent": "ar-b",
   "repo": "https://github.com/lexifina/argentina-salto-city-law",
-  "build": "built: municipal ordinances (176 ordinances, 176 versions) from https://sibom.slyt.gba.gob.ar/cities/110",
+  "build": "built: 490 official municipal ordinance records as published (490 versions) from https://sibom.slyt.gba.gob.ar/cities/110",
   "language": "es",
   "sources": 1
 }
