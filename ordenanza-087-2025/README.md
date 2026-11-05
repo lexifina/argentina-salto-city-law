@@ -1,6 +1,6 @@
-# Ordenanza 087/2025: Autorizase al Sr. Baratta Luis Enrique D.N.I.: 4.957.987 al uso del espacio público para la realización de la obra de AMPLIACIÓN de la RED CLOACAL en el inmueble identificado catastralmente como CIRCUNSCRIPCIÓN I, SECCIÓ
+# Ordenanza 087/2024: Autorizase al Sr. Baratta Luis Enrique D.N.I.: 4.957.987 al uso del espacio público para la realización de la obra de AMPLIACIÓN de la RED CLOACAL en el inmueble identificado catastralmente como CIRCUNSCRIPCIÓN I, SECCIÓ
 
-Ordenanza 087/2025 · 1 versions, from 2025-03-26 (latest in force: 2025-03-26) · <https://sibom.slyt.gba.gob.ar/bulletins/12393/contents/2188533>
+Ordenanza 087/2024 · 1 versions, from 2025-03-26 (latest in force: 2025-03-26) · <https://sibom.slyt.gba.gob.ar/bulletins/12393/contents/2188533>
 
 | Provision | File | Changes | Last changed |
 | --- | --- | ---: | --- |

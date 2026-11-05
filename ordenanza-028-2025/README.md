@@ -1,6 +1,6 @@
-# Ordenanza 028/2025: Autorizase a la Sra. Ferrando, Elsa Azucena D.N.I.: N° 14.100.188 al uso del espacio público consistente en un espacio de hasta seis con cincuenta (6,50) metros destinados al estacionamiento de vehículos para emergencias
+# Ordenanza 028/2024: Autorizase a la Sra. Ferrando, Elsa Azucena D.N.I.: N° 14.100.188 al uso del espacio público consistente en un espacio de hasta seis con cincuenta (6,50) metros destinados al estacionamiento de vehículos para emergencias
 
-Ordenanza 028/2025 · 1 versions, from 2025-03-23 (latest in force: 2025-03-23) · <https://sibom.slyt.gba.gob.ar/bulletins/12391/contents/2187954>
+Ordenanza 028/2024 · 1 versions, from 2025-03-23 (latest in force: 2025-03-23) · <https://sibom.slyt.gba.gob.ar/bulletins/12391/contents/2187954>
 
 | Provision | File | Changes | Last changed |
 | --- | --- | ---: | --- |

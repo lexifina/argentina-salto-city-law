@@ -1,6 +1,6 @@
-# Ordenanza 017/2018: Autorizase a la Empresa INGENIERÍA DEL SUELO S.R.L. a utilizar el espacio público subterráneo en calle Profesor Dominguez Nº 531 de la Ciudad de Salto, para la realización de la obra de extensión de la red de gas natural
+# Ordenanza 017/2017: Autorizase a la Empresa INGENIERÍA DEL SUELO S.R.L. a utilizar el espacio público subterráneo en calle Profesor Dominguez Nº 531 de la Ciudad de Salto, para la realización de la obra de extensión de la red de gas natural
 
-Ordenanza 017/2018 · 1 versions, from 2018-09-06 (latest in force: 2018-09-06) · <https://sibom.slyt.gba.gob.ar/bulletins/125/contents/1137293>
+Ordenanza 017/2017 · 1 versions, from 2018-09-06 (latest in force: 2018-09-06) · <https://sibom.slyt.gba.gob.ar/bulletins/125/contents/1137293>
 
 | Provision | File | Changes | Last changed |
 | --- | --- | ---: | --- |

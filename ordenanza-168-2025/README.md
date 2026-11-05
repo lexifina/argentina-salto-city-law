@@ -1,6 +1,6 @@
-# Ordenanza 168/2025: Las obligaciones de carácter fiscal consistentes en Tasas, Derechos y demás Contribuciones que la Municipalidad de Salto establezca, se regirán por las disposiciones de esta Ordenanza Fiscal y de las reglamentaciones que
+# Ordenanza 168/2024: Las obligaciones de carácter fiscal consistentes en Tasas, Derechos y demás Contribuciones que la Municipalidad de Salto establezca, se regirán por las disposiciones de esta Ordenanza Fiscal y de las reglamentaciones que
 
-Ordenanza 168/2025 · 1 versions, from 2025-03-09 (latest in force: 2025-03-09) · <https://sibom.slyt.gba.gob.ar/bulletins/12263/contents/2183987>
+Ordenanza 168/2024 · 1 versions, from 2025-01-01 (latest in force: 2025-01-01) · <https://sibom.slyt.gba.gob.ar/bulletins/12263/contents/2183987>
 
 | Provision | File | Changes | Last changed |
 | --- | --- | ---: | --- |

@@ -1,6 +1,6 @@
-# Ordenanza 007/2025: Autorizase a la Sra., Curkovic Marisa D.N.I.: 21.955.995 al uso del espacio público consistente en un espacio de hasta seis con cincuenta (6,50) metros destinado al estacionamiento de vehículos para emergencias y para pe
+# Ordenanza 007/2024: Autorizase a la Sra., Curkovic Marisa D.N.I.: 21.955.995 al uso del espacio público consistente en un espacio de hasta seis con cincuenta (6,50) metros destinado al estacionamiento de vehículos para emergencias y para pe
 
-Ordenanza 007/2025 · 1 versions, from 2025-03-23 (latest in force: 2025-03-23) · <https://sibom.slyt.gba.gob.ar/bulletins/12376/contents/2186521>
+Ordenanza 007/2024 · 1 versions, from 2025-03-23 (latest in force: 2025-03-23) · <https://sibom.slyt.gba.gob.ar/bulletins/12376/contents/2186521>
 
 | Provision | File | Changes | Last changed |
 | --- | --- | ---: | --- |

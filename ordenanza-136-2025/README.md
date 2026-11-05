@@ -1,6 +1,6 @@
-# Ordenanza 136/2025: MODIFICASE el Artículo 12º de la Ordenanza General de Tránsito Nº 137/2012, incorporando un nuevo estacionamiento de bicicletas y motocicletas sobre Profesor Domínguez entre Avenida Dardo Lafalce y Regidor González, Sent
+# Ordenanza 136/2024: MODIFICASE el Artículo 12º de la Ordenanza General de Tránsito Nº 137/2012, incorporando un nuevo estacionamiento de bicicletas y motocicletas sobre Profesor Domínguez entre Avenida Dardo Lafalce y Regidor González, Sent
 
-Ordenanza 136/2025 · 1 versions, from 2025-03-23 (latest in force: 2025-03-23) · <https://sibom.slyt.gba.gob.ar/bulletins/12391/contents/2187951>
+Ordenanza 136/2024 · 1 versions, from 2025-03-23 (latest in force: 2025-03-23) · <https://sibom.slyt.gba.gob.ar/bulletins/12391/contents/2187951>
 
 | Provision | File | Changes | Last changed |
 | --- | --- | ---: | --- |

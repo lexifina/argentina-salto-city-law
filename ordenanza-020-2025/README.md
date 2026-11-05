@@ -1,6 +1,6 @@
-# Ordenanza 020/2025: IMPONESE el nombre de “Centro Cultural OSCAR ALFREDO “CATA” EVANGELINA” al edificio público municipal (ex casino) emplazado sobre calle Belmartino S/N° de nuestra Cuidad. -
+# Ordenanza 020/2024: IMPONESE el nombre de “Centro Cultural OSCAR ALFREDO “CATA” EVANGELINA” al edificio público municipal (ex casino) emplazado sobre calle Belmartino S/N° de nuestra Cuidad. -
 
-Ordenanza 020/2025 · 1 versions, from 2025-03-23 (latest in force: 2025-03-23) · <https://sibom.slyt.gba.gob.ar/bulletins/12391/contents/2188012>
+Ordenanza 020/2024 · 1 versions, from 2025-03-23 (latest in force: 2025-03-23) · <https://sibom.slyt.gba.gob.ar/bulletins/12391/contents/2188012>
 
 | Provision | File | Changes | Last changed |
 | --- | --- | ---: | --- |

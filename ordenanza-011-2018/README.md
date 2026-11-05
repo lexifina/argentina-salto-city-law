@@ -1,6 +1,6 @@
-# Ordenanza 011/2018: Destínase al ARCHIVO el Expediente Nº 354-D-2016, por los motivos expuestos en el exordio.-
+# Ordenanza 011/2017: Destínase al ARCHIVO el Expediente Nº 354-D-2016, por los motivos expuestos en el exordio.-
 
-Ordenanza 011/2018 · 1 versions, from 2018-09-06 (latest in force: 2018-09-06) · <https://sibom.slyt.gba.gob.ar/bulletins/125/contents/1137869>
+Ordenanza 011/2017 · 1 versions, from 2018-09-06 (latest in force: 2018-09-06) · <https://sibom.slyt.gba.gob.ar/bulletins/125/contents/1137869>
 
 | Provision | File | Changes | Last changed |
 | --- | --- | ---: | --- |

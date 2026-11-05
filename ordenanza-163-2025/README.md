@@ -1,6 +1,6 @@
-# Ordenanza 163/2025: DEROGUESE la Ordenanza N° 058/2022.-
+# Ordenanza 163/2024: DEROGUESE la Ordenanza N° 058/2022.-
 
-Ordenanza 163/2025 · 1 versions, from 2025-03-09 (latest in force: 2025-03-09) · <https://sibom.slyt.gba.gob.ar/bulletins/12263/contents/2183996>
+Ordenanza 163/2024 · 1 versions, from 2025-03-09 (latest in force: 2025-03-09) · <https://sibom.slyt.gba.gob.ar/bulletins/12263/contents/2183996>
 
 | Provision | File | Changes | Last changed |
 | --- | --- | ---: | --- |

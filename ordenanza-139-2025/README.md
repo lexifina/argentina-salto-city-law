@@ -1,6 +1,6 @@
-# Ordenanza 139/2025: AUTORÍZASE a la empresa M.S.F Constructora Vial & Civil S.R.L. al uso del espacio público subterráneo en calle Cristóbal Colón y Chile de la Ciudad de Salto, para la realización de la obra de ampliación de la Red de Gas 
+# Ordenanza 139/2024: AUTORÍZASE a la empresa M.S.F Constructora Vial & Civil S.R.L. al uso del espacio público subterráneo en calle Cristóbal Colón y Chile de la Ciudad de Salto, para la realización de la obra de ampliación de la Red de Gas 
 
-Ordenanza 139/2025 · 1 versions, from 2025-03-23 (latest in force: 2025-03-23) · <https://sibom.slyt.gba.gob.ar/bulletins/12391/contents/2187964>
+Ordenanza 139/2024 · 1 versions, from 2025-03-23 (latest in force: 2025-03-23) · <https://sibom.slyt.gba.gob.ar/bulletins/12391/contents/2187964>
 
 | Provision | File | Changes | Last changed |
 | --- | --- | ---: | --- |

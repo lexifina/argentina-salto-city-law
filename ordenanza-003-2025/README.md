@@ -1,6 +1,6 @@
-# Ordenanza 003/2025: AUTORÍZASE al Departamento Ejecutivo a suscribir la ESCRITURACIÓN de la Vivienda N.º 6 del Barrio 49 Viviendas “Plan Solidaridad” de la ciudad de Salto, identificada catastralmente como CIRCUNSCRIPCION II, SECCION A, MAN
+# Ordenanza 003/2024: AUTORÍZASE al Departamento Ejecutivo a suscribir la ESCRITURACIÓN de la Vivienda N.º 6 del Barrio 49 Viviendas “Plan Solidaridad” de la ciudad de Salto, identificada catastralmente como CIRCUNSCRIPCION II, SECCION A, MAN
 
-Ordenanza 003/2025 · 1 versions, from 2025-03-23 (latest in force: 2025-03-23) · <https://sibom.slyt.gba.gob.ar/bulletins/12376/contents/2186513>
+Ordenanza 003/2024 · 1 versions, from 2025-03-23 (latest in force: 2025-03-23) · <https://sibom.slyt.gba.gob.ar/bulletins/12376/contents/2186513>
 
 | Provision | File | Changes | Last changed |
 | --- | --- | ---: | --- |

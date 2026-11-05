@@ -1,6 +1,6 @@
-# Ordenanza 079/2025: DERÓGASE la Ordenanza Nº 017/2023.-
+# Ordenanza 079/2024: DERÓGASE la Ordenanza Nº 017/2023.-
 
-Ordenanza 079/2025 · 1 versions, from 2025-03-26 (latest in force: 2025-03-26) · <https://sibom.slyt.gba.gob.ar/bulletins/12393/contents/2188529>
+Ordenanza 079/2024 · 1 versions, from 2025-03-26 (latest in force: 2025-03-26) · <https://sibom.slyt.gba.gob.ar/bulletins/12393/contents/2188529>
 
 | Provision | File | Changes | Last changed |
 | --- | --- | ---: | --- |

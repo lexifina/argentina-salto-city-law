@@ -1,6 +1,6 @@
-# Ordenanza 172/2025: Apruébese la Programación de los Recursos y el Presupuesto General de Gastos de la Municipalidad de Salto, correspondiente al Ejercicio 2025 de conformidad a lo establecido por el Decreto Provincial 2980/00.
+# Ordenanza 172/2024: Apruébese la Programación de los Recursos y el Presupuesto General de Gastos de la Municipalidad de Salto, correspondiente al Ejercicio 2025 de conformidad a lo establecido por el Decreto Provincial 2980/00.
 
-Ordenanza 172/2025 · 1 versions, from 2025-03-09 (latest in force: 2025-03-09) · <https://sibom.slyt.gba.gob.ar/bulletins/12263/contents/2183991>
+Ordenanza 172/2024 · 1 versions, from 2025-03-09 (latest in force: 2025-03-09) · <https://sibom.slyt.gba.gob.ar/bulletins/12263/contents/2183991>
 
 | Provision | File | Changes | Last changed |
 | --- | --- | ---: | --- |

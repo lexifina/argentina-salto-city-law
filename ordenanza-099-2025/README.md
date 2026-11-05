@@ -1,6 +1,6 @@
-# Ordenanza 099/2025: MODIFÍCASE el Artículo 3º del Título Primero, Capítulo I de la Ordenanza Impositiva Nº 216/2023, el que quedará redactado de la siguiente manera:
+# Ordenanza 099/2024 (registro SIBOM 2188547)
 
-Ordenanza 099/2025 · 1 versions, from 2025-03-30 (latest in force: 2025-03-30) · <https://sibom.slyt.gba.gob.ar/bulletins/12396/contents/2188547>
+Ordenanza 099/2024 · 1 versions, from 2024-09-01 (latest in force: 2024-09-01) · <https://sibom.slyt.gba.gob.ar/bulletins/12396/contents/2188547>
 
 | Provision | File | Changes | Last changed |
 | --- | --- | ---: | --- |

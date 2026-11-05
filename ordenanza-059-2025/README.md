@@ -1,6 +1,6 @@
-# Ordenanza 059/2025: MODIFICASE el artículo 12º de la Ordenanza General de Tránsito N.º 137/12, incorporando un estacionamiento reservado para motocicletas en calle San Pablo entre Laprida y Las Heras sentido Oeste-Este cordón Sur”; quedando
+# Ordenanza 059/2024: MODIFICASE el artículo 12º de la Ordenanza General de Tránsito N.º 137/12, incorporando un estacionamiento reservado para motocicletas en calle San Pablo entre Laprida y Las Heras sentido Oeste-Este cordón Sur”; quedando
 
-Ordenanza 059/2025 · 1 versions, from 2025-03-30 (latest in force: 2025-03-30) · <https://sibom.slyt.gba.gob.ar/bulletins/12396/contents/2191252>
+Ordenanza 059/2024 · 1 versions, from 2025-03-30 (latest in force: 2025-03-30) · <https://sibom.slyt.gba.gob.ar/bulletins/12396/contents/2191252>
 
 | Provision | File | Changes | Last changed |
 | --- | --- | ---: | --- |

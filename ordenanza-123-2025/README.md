@@ -1,6 +1,6 @@
-# Ordenanza 123/2025: MODIFICASE el Artículo 1° de la Ordenanza N°068/2015 el que quedará redactado de la siguiente manera:
+# Ordenanza 123/2024: MODIFICASE el Artículo 1° de la Ordenanza N°068/2015 el que quedará redactado de la siguiente manera:
 
-Ordenanza 123/2025 · 1 versions, from 2025-03-23 (latest in force: 2025-03-23) · <https://sibom.slyt.gba.gob.ar/bulletins/12376/contents/2186623>
+Ordenanza 123/2024 · 1 versions, from 2025-03-23 (latest in force: 2025-03-23) · <https://sibom.slyt.gba.gob.ar/bulletins/12376/contents/2186623>
 
 | Provision | File | Changes | Last changed |
 | --- | --- | ---: | --- |

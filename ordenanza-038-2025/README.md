@@ -1,6 +1,6 @@
-# Ordenanza 038/2025: Autorizase la realización en el predio del kartódromo Club “Colonia el Rincón”, de carreras de karting, las que deberán llevarse a cabo en las condiciones establecidas para esa actividad los días Sábados a partir de las 
+# Ordenanza 038/2024: Autorizase la realización en el predio del kartódromo Club “Colonia el Rincón”, de carreras de karting, las que deberán llevarse a cabo en las condiciones establecidas para esa actividad los días Sábados a partir de las 
 
-Ordenanza 038/2025 · 1 versions, from 2025-03-26 (latest in force: 2025-03-26) · <https://sibom.slyt.gba.gob.ar/bulletins/12393/contents/2188045>
+Ordenanza 038/2024 · 1 versions, from 2025-03-26 (latest in force: 2025-03-26) · <https://sibom.slyt.gba.gob.ar/bulletins/12393/contents/2188045>
 
 | Provision | File | Changes | Last changed |
 | --- | --- | ---: | --- |

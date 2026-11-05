@@ -1,6 +1,6 @@
-# Ordenanza 033/2025: MODIFICASE el artículo 12º de la Ordenanza General de Tránsito N.º 137/12, incorporando un estacionamiento reservado para motocicletas en calle Laprida entre Moreno y Saavedra intersección Moreno sentido Sur-Norte cordón
+# Ordenanza 033/2024: MODIFICASE el artículo 12º de la Ordenanza General de Tránsito N.º 137/12, incorporando un estacionamiento reservado para motocicletas en calle Laprida entre Moreno y Saavedra intersección Moreno sentido Sur-Norte cordón
 
-Ordenanza 033/2025 · 1 versions, from 2025-03-23 (latest in force: 2025-03-23) · <https://sibom.slyt.gba.gob.ar/bulletins/12391/contents/2188000>
+Ordenanza 033/2024 · 1 versions, from 2025-03-23 (latest in force: 2025-03-23) · <https://sibom.slyt.gba.gob.ar/bulletins/12391/contents/2188000>
 
 | Provision | File | Changes | Last changed |
 | --- | --- | ---: | --- |

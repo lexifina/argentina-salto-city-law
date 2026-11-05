@@ -1,6 +1,6 @@
-# Ordenanza 086/2025: Autorizase a la Sra. Chávez María Luisa D.N.I.: 3.388.783 al uso del espacio público consistente en un espacio de hasta seis con cincuenta (6,50) metros destinados al estacionamiento de vehículos para emergencias y para 
+# Ordenanza 086/2024: Autorizase a la Sra. Chávez María Luisa D.N.I.: 3.388.783 al uso del espacio público consistente en un espacio de hasta seis con cincuenta (6,50) metros destinados al estacionamiento de vehículos para emergencias y para 
 
-Ordenanza 086/2025 · 1 versions, from 2025-03-26 (latest in force: 2025-03-26) · <https://sibom.slyt.gba.gob.ar/bulletins/12393/contents/2188534>
+Ordenanza 086/2024 · 1 versions, from 2025-03-26 (latest in force: 2025-03-26) · <https://sibom.slyt.gba.gob.ar/bulletins/12393/contents/2188534>
 
 | Provision | File | Changes | Last changed |
 | --- | --- | ---: | --- |

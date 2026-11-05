@@ -1,6 +1,6 @@
-# Ordenanza 076/2025: AUTORÍZASE a la empresa Ingeniería del Suelo SRL al uso del espacio público subterráneo en calle Camila Rolón e/ Tacuarí y French de la Ciudad de Salto, para la realización de la obra de ampliación de la Red de Gas Natur
+# Ordenanza 076/2024: AUTORÍZASE a la empresa Ingeniería del Suelo SRL al uso del espacio público subterráneo en calle Camila Rolón e/ Tacuarí y French de la Ciudad de Salto, para la realización de la obra de ampliación de la Red de Gas Natur
 
-Ordenanza 076/2025 · 1 versions, from 2025-03-26 (latest in force: 2025-03-26) · <https://sibom.slyt.gba.gob.ar/bulletins/12393/contents/2188519>
+Ordenanza 076/2024 · 1 versions, from 2025-03-26 (latest in force: 2025-03-26) · <https://sibom.slyt.gba.gob.ar/bulletins/12393/contents/2188519>
 
 | Provision | File | Changes | Last changed |
 | --- | --- | ---: | --- |

@@ -1,6 +1,6 @@
-# Ordenanza 116/2025: IMPONGASE el nombre de YOANA TORELLI a la arteria ubicada desde la coordenada -34.296689, -60.230680, en la intersección de Avenida Hipólito Yrigoyen; hasta la coordenada -34.293401, -60.229798, en la intersección con Fe
+# Ordenanza 116/2024: IMPONGASE el nombre de YOANA TORELLI a la arteria ubicada desde la coordenada -34.296689, -60.230680, en la intersección de Avenida Hipólito Yrigoyen; hasta la coordenada -34.293401, -60.229798, en la intersección con Fe
 
-Ordenanza 116/2025 · 1 versions, from 2025-03-23 (latest in force: 2025-03-23) · <https://sibom.slyt.gba.gob.ar/bulletins/12376/contents/2187792>
+Ordenanza 116/2024 · 1 versions, from 2025-03-23 (latest in force: 2025-03-23) · <https://sibom.slyt.gba.gob.ar/bulletins/12376/contents/2187792>
 
 | Provision | File | Changes | Last changed |
 | --- | --- | ---: | --- |

@@ -1,6 +1,6 @@
-# Ordenanza 026/2025: Autorizase a la Sra. Lafalce, María Susana D.N.I.: 5.814.510 al uso del espacio público consistente en un espacio de hasta seis con cincuenta (6,50) metros destinado al estacionamiento de vehículos para emergencias y par
+# Ordenanza 026/2024: Autorizase a la Sra. Lafalce, María Susana D.N.I.: 5.814.510 al uso del espacio público consistente en un espacio de hasta seis con cincuenta (6,50) metros destinado al estacionamiento de vehículos para emergencias y par
 
-Ordenanza 026/2025 · 1 versions, from 2025-03-23 (latest in force: 2025-03-23) · <https://sibom.slyt.gba.gob.ar/bulletins/12391/contents/2187967>
+Ordenanza 026/2024 · 1 versions, from 2025-03-23 (latest in force: 2025-03-23) · <https://sibom.slyt.gba.gob.ar/bulletins/12391/contents/2187967>
 
 | Provision | File | Changes | Last changed |
 | --- | --- | ---: | --- |

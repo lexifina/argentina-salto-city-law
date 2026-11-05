@@ -1,6 +1,6 @@
-# Ordenanza 176/2026: Las obligaciones de carácter fiscal consistentes en Tasas, Derechos y demás Contribuciones que la Municipalidad de Salto establezca, se regirán por las disposiciones de esta Ordenanza Fiscal y de las reglamentaciones que
+# Ordenanza 176/2025: Las obligaciones de carácter fiscal consistentes en Tasas, Derechos y demás Contribuciones que la Municipalidad de Salto establezca, se regirán por las disposiciones de esta Ordenanza Fiscal y de las reglamentaciones que
 
-Ordenanza 176/2026 · 1 versions, from 2026-01-14 (latest in force: 2026-01-14) · <https://sibom.slyt.gba.gob.ar/bulletins/14187/contents/2331649>
+Ordenanza 176/2025 · 1 versions, from 2026-01-01 (latest in force: 2026-01-01) · <https://sibom.slyt.gba.gob.ar/bulletins/14187/contents/2331649>
 
 | Provision | File | Changes | Last changed |
 | --- | --- | ---: | --- |

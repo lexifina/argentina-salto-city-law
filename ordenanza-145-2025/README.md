@@ -1,6 +1,6 @@
-# Ordenanza 145/2025: AUTORÍZASE al Sr. Casanovas Carlos Alberto D.N.I N° 4.978.893 al uso del espacio público para la construcción de una dársena de estacionamiento en inmueble de su titularidad donde funcionara un local comercial sito en Hi
+# Ordenanza 145/2024: AUTORÍZASE al Sr. Casanovas Carlos Alberto D.N.I N° 4.978.893 al uso del espacio público para la construcción de una dársena de estacionamiento en inmueble de su titularidad donde funcionara un local comercial sito en Hi
 
-Ordenanza 145/2025 · 1 versions, from 2025-03-23 (latest in force: 2025-03-23) · <https://sibom.slyt.gba.gob.ar/bulletins/12391/contents/2187991>
+Ordenanza 145/2024 · 1 versions, from 2025-03-23 (latest in force: 2025-03-23) · <https://sibom.slyt.gba.gob.ar/bulletins/12391/contents/2187991>
 
 | Provision | File | Changes | Last changed |
 | --- | --- | ---: | --- |

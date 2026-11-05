@@ -1,6 +1,6 @@
-# Ordenanza 078/2025: Modifíquese el art. 8° de la Ordenanza General de Tránsito 137/12, el que quedara redactado de la siguiente manera:
+# Ordenanza 078/2024: Modifíquese el art. 8° de la Ordenanza General de Tránsito 137/12, el que quedara redactado de la siguiente manera:
 
-Ordenanza 078/2025 · 1 versions, from 2025-03-26 (latest in force: 2025-03-26) · <https://sibom.slyt.gba.gob.ar/bulletins/12393/contents/2188528>
+Ordenanza 078/2024 · 1 versions, from 2025-03-26 (latest in force: 2025-03-26) · <https://sibom.slyt.gba.gob.ar/bulletins/12393/contents/2188528>
 
 | Provision | File | Changes | Last changed |
 | --- | --- | ---: | --- |

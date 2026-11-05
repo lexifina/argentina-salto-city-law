@@ -1,6 +1,6 @@
-# Ordenanza 105/2025: AUTORIZASE al Centro de Ingenieros Agrónomos de Salto a utilizar el uso del espacio público de diferentes sitios del Partido de Salto en el marco del
+# Ordenanza 105/2024: AUTORIZASE al Centro de Ingenieros Agrónomos de Salto a utilizar el uso del espacio público de diferentes sitios del Partido de Salto en el marco del
 
-Ordenanza 105/2025 · 1 versions, from 2025-03-23 (latest in force: 2025-03-23) · <https://sibom.slyt.gba.gob.ar/bulletins/12376/contents/2186566>
+Ordenanza 105/2024 · 1 versions, from 2025-03-23 (latest in force: 2025-03-23) · <https://sibom.slyt.gba.gob.ar/bulletins/12376/contents/2186566>
 
 | Provision | File | Changes | Last changed |
 | --- | --- | ---: | --- |

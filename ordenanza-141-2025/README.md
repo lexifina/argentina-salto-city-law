@@ -1,6 +1,6 @@
-# Ordenanza 141/2025: AUTORIZASE a la SRA. ALESSANDRO ANTONELA D.N.I. N°34.781.955, al cierre del tránsito vehicular de calle Jujuy entre Paraná y Dr. Bonfiglio de nuestra Cuidad, el día 27 de Octubre del corriente año en el horario comprendi
+# Ordenanza 141/2024: AUTORIZASE a la SRA. ALESSANDRO ANTONELA D.N.I. N°34.781.955, al cierre del tránsito vehicular de calle Jujuy entre Paraná y Dr. Bonfiglio de nuestra Cuidad, el día 27 de Octubre del corriente año en el horario comprendi
 
-Ordenanza 141/2025 · 1 versions, from 2025-03-23 (latest in force: 2025-03-23) · <https://sibom.slyt.gba.gob.ar/bulletins/12391/contents/2187923>
+Ordenanza 141/2024 · 1 versions, from 2025-03-23 (latest in force: 2025-03-23) · <https://sibom.slyt.gba.gob.ar/bulletins/12391/contents/2187923>
 
 | Provision | File | Changes | Last changed |
 | --- | --- | ---: | --- |
